@@ -1,1 +1,1 @@
-Code Sample for Tienna Kim
+Code Sample for T Kim
